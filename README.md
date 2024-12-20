@@ -1,3 +1,3 @@
 # Task3: Portfolio
 
-https://drive.google.com/drive/folders/1fA-w6_Hv6E-E7-BEO3uud6KwQPN301NF?usp=sharing
+https://drive.google.com/file/d/1kGr2fLApRQc_RZzCQcNcs4uxpRnHjWLG/view?usp=sharing
